@@ -12,5 +12,6 @@ Meu nome é Samara Siqueira
   
   @_wsamarax siga ae!
 
-  ![]( https://media.tenor.com/OiDMxO8EUPkAAAAi/coco.gif)
+
+https://media1.tenor.com/m/S8zR3TvW9ioAAAAC/sleepy-bulgarian.gif
  
